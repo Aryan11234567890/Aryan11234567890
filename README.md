@@ -13,7 +13,7 @@
 
 - 👯 I’m looking to collaborate on **Any topic and domain. Let's solve!!!**
 
-- 👨‍💻 All of my projects are available at [My Github](My Github)
+- 👨‍💻 All of my projects are available here
 
 - 📝 I regularly write articles on [https://medium.com/@aryan11234567890](https://medium.com/@aryan11234567890)
 
